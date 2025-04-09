@@ -1,0 +1,2 @@
+# uuumidk
+ideas
